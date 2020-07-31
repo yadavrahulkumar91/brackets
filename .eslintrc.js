@@ -91,4 +91,12 @@ module.exports = {
           "classes": true
         }
     }
-};
+DKK
+    KK
+    JPP
+    20888
+    BHAI YO K LEKHRKOTAILE
+    G
+    K HO
+    MbM
+    
